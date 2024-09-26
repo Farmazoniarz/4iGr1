@@ -2,5 +2,6 @@
 25.09.2024r.
 ćiczonka
 
-ćwiczenia powtórkowe nba lekcji :)
+ćwiczenia powtórkowe na lekcji :)
+Ja Morant pozdro
 
